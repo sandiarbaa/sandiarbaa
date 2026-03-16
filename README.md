@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'am currently working on mcm media network<br>i love coding, everytime everywhere.
+i'am currently working on mcm media network as a software engineer<br>i love coding.
 
 
 ## 🌐 Socials:
